@@ -15,4 +15,4 @@ We’re always looking for new, passionate team members! If you’re excited abo
 
 ---
 
-**LASSMACHEN Studios** – Building tools for today, shaping ideas for tomorrow.
+**LASSMACHEN Studios** – Tools for today, ideas for tomorrow.
